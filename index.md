@@ -4,8 +4,6 @@ Welcome to the wedding streaming website for Benjamin Kane and Jenny Wang.
 
 Also see the [wedding info site](https://theknot.com/allaboardthekanetrain).
 
-## Come back June 13, 2020 at 5PM PDT to watch Jenny get on the Kane Train!
-
-Unfortunately, Ben came down with a fever. We're going to try to marry over Zoom and stream that. We'll update here if that doesn't work.
+## Come back June 20, 2020 at 11:15 AM PDT to watch Jenny get on the Kane Train!
 
 ![](./img/Ben-Jen-at-beach.jpg)
